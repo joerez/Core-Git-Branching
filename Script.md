@@ -28,6 +28,7 @@ Since it's his job to keep the zoo, the zookeeper chased Rick Kicks!
 
 Rick Kicks met the Unicorn King who granted him magic powers.
 Rick Kicks goes home and takes a well deserved nap.
+The Zookeeper got a promotion and his wife and children were proud.
 The end.
 
 ## Cast
